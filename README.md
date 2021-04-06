@@ -4,11 +4,17 @@ The chat is kind of sensitive. so I m going to add some of the script here.
 
 
 I want to take admission in UTM
+
 May I know admission recruitment for UTM?
+
 Bangladesh
+
 How is UTM?
+
 Where is UTM?
+
 How are courses assessed?
+
 What are the admission requirements for Undergraduate International Students?
 What do I have to do to get my foreign diploma/degree recognised by UTM?
 What kind of accommodation facilities do you have for single and/or married students?
